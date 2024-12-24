@@ -9,19 +9,19 @@
 
 - 🌱 I’m currently learning **Javascript & python**
 
-- 👯 I’m looking to collaborate on [Whatsapp bot](youtube.com/@techgod143)
+- 👯 I’m looking to collaborate on [Whatsapp bot](https://youtube.com/@hoekagetech?si=UYHyufMXmauYuiHy)
 
-- 🤝 I’m looking for help with [Youtube](youtube.com/@techgod143)
+- 🤝 I’m looking for help with [Youtube](youtube.com/@hoekagetech)
 
-- 👨‍💻 All of my projects are available at [youtube.com/@techgod143](youtube.com/@techgod143)
+- 👨‍💻 All of my projects are available at [youtube.com/@hoekagetech](youtube.com/@hoekagetech)
 
-- 📝 I regularly write articles on [youtube.com/@techgod143](youtube.com/@techgod143)
+- 📝 I regularly write articles on [youtube.com/@hoekagetech](youtube.com/@hoekagetech)
 
 - 💬 Ask me about **Whatsapp bot**
 
-- 📫 How to reach me **wa.me/917466008456**
+- 📫 How to reach me **wa.me/27710200228**
 
-- 📄 Know about my experiences [youtube.com/@techgod143](youtube.com/@techgod143)
+- 📄 Know about my experiences [youtube.com/@hoekagetech](youtube.com/@hoekagetech)
 
 - ⚡ Fun fact **I am funny bro**
 
